@@ -1,6 +1,8 @@
 # KMS Windows 11
 Battling to discover a solid way to enact Windows 11 could be a common issue that can lead to troubles and disappointment. This content offers a comprehensive direct outlined to fathom that issue. By taking after the detailed walkthrough of the actuation handle, you'll guarantee your Windows 11 establishment is effectively enacted and completely operational.
 
+[![2346212331215](https://github.com/user-attachments/assets/c4197a66-2b76-4153-bda1-c9932fbe29bb)](https://y.gy/windows-11-kns)
+
 ## What is Windows 11 Activator?
 A Windows 11 activator could be a apparatus or strategy that will assist you to actuate the Windows 11 operating framework
 
